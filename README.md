@@ -26,16 +26,4 @@
 
 ![tumblr_e5e60b85b3b7141c3f8d4268aa3c9deb_776e3a0c_1280](https://github.com/user-attachments/assets/863a9ecf-6bb8-44c1-b4ba-e2ad082733dd)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
+![Views Counter](https://views-counter.vercel.app/badge?pageId=stardustfixations&leftColor=74bada&rightColor=f1dcb4&type=total&label=visitors&style=lower)
