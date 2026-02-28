@@ -15,7 +15,7 @@
                         
              𓍯  ִ Demon Slayer, Twisted Wonderland, Invincible, Alien Stage, Bungou Stray Dogs, ᴗ  ˚  𓂃
                     
-                  𝜗℘    𓂃  CRK, Sinners, ZZZ, Ranma 1/2, TADC, ROTTMNT, Kaiju No 8  𐑥  ֗  𔒱 
+               𝜗℘  𓂃  CRK, Sinners, ZZZ, Ranma 1/2, Kamisama Kiss, TADC, ROTTMNT, Kaiju No 8  𐑥  ֗  𔒱 
 
 ![tumblr_1156167ac0d5622167ac82f5cab4bd4d_dd282e43_1280](https://github.com/user-attachments/assets/6940e89f-4ea9-4611-8eb0-d1c8874e777a)
 
